@@ -21,5 +21,4 @@ Estou atualmente a utilizar Inteligência Artificial como minha mentora e tutora
 ---
 
 ## 📬 Vamos nos conectar?
-*   **LinkedIn:** [Jefferson Cezar Silva](https://linkedin.com)
-*   **Website:** [jeffcezar.me](http://jeffcezar.me)
+*   **LinkedIn:** [Jefferson Cezar Silva](https://www.linkedin.com/in/jeffersoncezarsilva/)
